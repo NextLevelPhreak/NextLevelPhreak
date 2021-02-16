@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Austin!
+- 👀 I enjoy gaming and and reading
+- 🌱 I’m currently learning web design and basic coding
+- 📫 you can reach me at austinbaxter6202@outlook.com 
